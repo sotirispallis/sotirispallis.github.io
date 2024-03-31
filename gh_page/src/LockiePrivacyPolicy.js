@@ -29,6 +29,8 @@ Please note that this Privacy Policy applies solely to the Lockie mobile applica
 
 By using Lockie, you consent to the terms outlined in this Privacy Policy.
 
+Thank you for using Lockie!
+
 Last Updated: 09/10/2023
 
 `
